@@ -13,3 +13,6 @@
     1. I have 3 cats
     2. I was in the top 1 percent of the US in World of Warcraft 3v3
     3. Jager is amazing
+    
+    
+[Linked In Profile](https://www.linkedin.com/in/taylor-laine-58b298aa/)
