@@ -14,5 +14,7 @@
     2. I was in the top 1 percent of the US in World of Warcraft 3v3
     3. Jager is amazing
     
+## Ideas about where I wanna work
+    I would like to work in a medium to a large company. I am highly interested in doing backend engineering or back-up plan very very hevy javascript front end (such as react or angular work).
     
 [Linked In Profile](https://www.linkedin.com/in/taylor-laine-58b298aa/)
